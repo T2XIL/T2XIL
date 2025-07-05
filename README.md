@@ -31,17 +31,25 @@ CHAOTICENTITY
 
 Ints  !  
 
-1) . Any ships int! as long as the ships.. isnt weird or either toxic.. ifyk what i mean..
-2) . Any Fandom int!
-3) . Having the same humor as me!
-4) . and etc! i will put some ints if i have any ideas! i do have them but kinda a bit
+1) . 
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Any ships int! as long as the ships.. isnt weird or either toxic.. ifyk what i mean..
+2) . 
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Any Fandom int!
+3) .
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Having the same humor as me!
+4) 
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw). and etc! i will put some ints if i have any ideas! i do have them but kinda a bit
      lazy !
 
 Dni's  !
-1) . Pedophiles, homophobics, proshippers, transphobic.
-2) . copying my friends skin and being sneaky.
-3) . Rude for no absolutely reason.
-4) . and etc things.
+1) .
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Pedophiles, homophobics, proshippers, transphobic.
+2) .
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) copying my friends skin and being sneaky.
+3) .
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Rude for no absolutely reason.
+4) .  
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw)and etc things.
 
 About me  ! 
 
