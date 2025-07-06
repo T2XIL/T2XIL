@@ -104,7 +104,7 @@ either on islands alone or with friends! also for Indonesia server to hang out w
  I love making new friends <33
 Also Love my friendss ❤
 
- [https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31ghm6nqj2phbgaivk3hj4kz5cdq&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31ghm6nqj2phbgaivk3hj4kz5cdq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&bar_color_cover=true)]]
+ 
 ꕤ
 
 
